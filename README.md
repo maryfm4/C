@@ -1,1 +1,1 @@
-Zadania C z strony Surmacza tam w pdf instrukcje.
+Maybe it'll be helpfull later.
